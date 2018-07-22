@@ -9,3 +9,8 @@ https://www.pornhub.com/view_video.php?viewkey=ph5a313ed0bdd48
 
 https://hyesun03.github.io/2016/12/05/jekyllTag/
 태그 관련.
+
+
+
+머신러닝
+https://korea7030.github.io/Study1/
